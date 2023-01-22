@@ -1,5 +1,11 @@
 ## Hi there 👋
 
+🙋‍♀️  Welcome to pascal real estate 
+
+🍿 Wanna work with us? Email team@smartpascal.com
+
+🌈 We're based in Sunny LA
+
 <!--
 
 **Here are some ideas to get you started:**
