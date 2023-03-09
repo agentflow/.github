@@ -4,7 +4,7 @@
 
 🍿 Wanna work with us? Email team@smartpascal.com
 
-🌈 We're based in Sunny LA
+🌈 We're based in Sunny LA and we are changing how real estate transactions happen
 
 <!--
 
